@@ -1,3 +1,3 @@
 # Manuscript
-Author: Anne Anonym
+Author: Anne B.
 
